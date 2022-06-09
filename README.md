@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Vinh
+- 👀 I’m interested in to code, learn foreign language, picnic relax, travel, food,...
+- 🌱 I’m currently learning japanness, python, express js
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: 
+  On facebook: https://www.facebook.com/vinh.dolla
